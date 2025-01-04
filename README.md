@@ -10,7 +10,7 @@
 
 ---  
 
-![4](https://github.com/user-attachments/assets/83a6c20f-b9d8-4c14-89cf-21aa231c1f1f)  
+![dsads](https://i.imgur.com/zCgNrqx.jpeg)
 
 ## Промокоды 1win: Увеличьте свои возможности с бонусами 🎁  
 
